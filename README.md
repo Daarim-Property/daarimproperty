@@ -1,2 +1,0 @@
-# daarimproperty
-Daarim Property Limited
