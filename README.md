@@ -1,2 +1,2 @@
 # daarimproperty
-Daarim CIC
+Daarim Property Limited
